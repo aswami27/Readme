@@ -7,3 +7,5 @@ Working on something amazing
 Wait for it 
 
 Still working
+
+Good things takes time to complete
